@@ -1,0 +1,1 @@
+My name is Daniel and I'm in the third term of IMD. I'm 28 and was born and raised in Ottawa. I spent my summer working at a restaurant, cannabis production company, and doing freelance writing and photography jobs.
